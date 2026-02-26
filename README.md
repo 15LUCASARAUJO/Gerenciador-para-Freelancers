@@ -1,0 +1,1 @@
+# Gerenciador-de-Or-amentos-para-Freelancers-com-IA
